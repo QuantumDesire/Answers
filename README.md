@@ -1,6 +1,6 @@
 # 2017 Math Answer Keys
 
-I'm an ex-student who out smarted the IT guys. I am still able to access the school network and all resource drives even after having my Macbook erased. 
+I'm an ex-student of Trinity who out smarted the IT guys. I am still able to access the school network and all resource drives even after having my Macbook erased. 
 
 I have managed to dig up the answer keys for Maths A and B. I thought I'd have some fun and upload them. If you are lucky enough to find this website, you know some well connected people. My work is hard to find.
 
